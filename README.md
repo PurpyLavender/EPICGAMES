@@ -14,6 +14,75 @@ https://github.com/whos-evan/kazwire.git
 
 
 
+THIS IS ALSO THE OFFICIAL SIT, ANY OTHER SITE IS A RIPOFF. THIS IS THE ACTUAL DOMAIN OF THE WEBSITE SO ENJOY YOUR STAY!!!
+
+
+
+Made with love by Anonymous Person
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+THIS SITE IS DEDICATED TO GOOGLE SITES SO GOODBYE GOOGLE SITES!!! WE ALWAYS LOVE YOU NO MATTER WHAT AND DONT THINK OF ANYTHING ELSE!!!!
+
+
+
+
+
 
 
 
